@@ -12,9 +12,7 @@
 
 ![](https://64.media.tumblr.com/503a745df14ef1640597f39e0e2e63aa/b35afcc33bb88749-78/s75x75_c1/1fb33ac194041a27866c8fb91106ad65982c6b9c.gifv)𝓢𝓱𝓮 ⭑ 𝓣𝓱𝓮𝓶
 
-𝕸іᥒ᥆r![](https://64.media.tumblr.com/d9162c7ba401a32c7bdabeaae25ef2e9/b35afcc33bb88749-e1/s75x75_c1/c251436e513bcc44e4f0425202770c6998f7eea4.gifv)
-
-𝟾 ⭑ 𝟷𝟺
+𝕸іᥒ᥆r ![](https://64.media.tumblr.com/d9162c7ba401a32c7bdabeaae25ef2e9/b35afcc33bb88749-e1/s75x75_c1/c251436e513bcc44e4f0425202770c6998f7eea4.gifv) 𝟾 ⭑ 𝟷𝟺
 
 ![](https://64.media.tumblr.com/e71de8fa2dcf7fcb839f717cfe608e61/84dfe0812e9782e4-98/s400x600/5783afd37c187cc1cb59138b9d9b231ba11d58e5.pnj)
 
